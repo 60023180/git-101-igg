@@ -8,4 +8,4 @@
 
 # นายกิตติภพ มาตรศาลา 
 
-# ไวน์ Tiktok tiktok.com/@yy.wine 
+# ไวน์ Tiktok https://www.tiktok.com/@yy.wine
